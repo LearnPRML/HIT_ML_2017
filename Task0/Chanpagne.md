@@ -1,3 +1,3 @@
-﻿# 范航明
-Stay hungry， stay foolish
-
+范航明
+# 座右铭
+stay hungry stay foolish
